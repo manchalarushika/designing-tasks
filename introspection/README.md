@@ -13,7 +13,7 @@ I'm excited to dive into the ocean of knowledge and creativity within the desigi
 so, as you can see.I'm all about creativity,design,sports,and learning.
 My mission is to learn,contribute,and together,propel the boundaries of innovation.
 
-2)My plan for the next 6 months are I'll dedicate time to improving my coding skills , i'll focus on honing my knowlegge of languages I already know and improve my video making skills.
+2)My plan for the next 6 months are I'll dedicate time to improving my coding skills , I'll focus on honing my knowlegge of languages I already know and improve my video making skills.
 
 3)I plan to contribute by actively participating in club activities,sharing my knowledge and supporting club events and initiatives.Together,we'll make desingning thrive.
 
